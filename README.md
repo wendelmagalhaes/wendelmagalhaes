@@ -11,6 +11,8 @@ Meu nome é Wendel Magalhães
 - 00001149788185sp@al.educacao.sp.gov.br
 
 -  @wendel_gbn
- 
-!(https://media1.tenor.com/m/mCiM7CmGGI4AAAAd/naruto.gif)
 
+ ![](https://media1.tenor.com/m/mCiM7CmGGI4AAAAd/naruto.gif)
+
+
+ 
