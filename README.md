@@ -12,3 +12,5 @@ Meu nome é Wendel Magalhães
 
 -  @wendel_gbn
  
+
+https://media1.tenor.com/m/mCiM7CmGGI4AAAAd/naruto.gif
