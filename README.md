@@ -9,4 +9,7 @@ Meu nome é Wendel Magalhães
 - ### você entrar em contato comigo 📬
 
 - 00001149788185sp@al.educacao.sp.gov.br
-- @wendel_gbn
+-
+- - @wendel_gbn
+ 
+  - 
